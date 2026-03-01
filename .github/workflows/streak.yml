@@ -1,0 +1,44 @@
+name: Daily Quote Committer
+
+on:
+  schedule:
+    # Berjalan otomatis setiap hari (misal jam 07:00 WIB / 00:00 UTC)
+    - cron: '0 0 * * *'
+  workflow_dispatch: # Bisa dijalankan manual lewat tab Actions
+
+permissions:
+  contents: write # Wajib agar bot bisa melakukan push ke repo
+
+jobs:
+  update-quote:
+    runs-on: ubuntu-latest
+    steps:
+      - name: Checkout repo
+        uses: actions/checkout@v4
+
+      - name: Fetch Random Quote
+        id: fetch_quote
+        run: |
+          # Mengambil quote acak dari API ZenQuotes
+          QUOTE_JSON=$(curl -s https://zenquotes.io/api/random)
+          QUOTE_TEXT=$(echo $QUOTE_JSON | jq -r '.[0].q')
+          QUOTE_AUTHOR=$(echo $QUOTE_JSON | jq -r '.[0].a')
+
+          echo "author=$QUOTE_AUTHOR" >> $GITHUB_ENV
+
+          echo "### Quote of the Day 🌟" > daily_quote.md
+          echo "> \"$QUOTE_TEXT\"" >> daily_quote.md
+          echo "" >> daily_quote.md
+          echo "- **$QUOTE_AUTHOR**" >> daily_quote.md
+          echo "" >> daily_quote.md
+          echo "_Last updated on: $(TZ='Asia/Jakarta' date)_" >> daily_quote.md
+
+      - name: Commit and Push
+        run: |
+          git config --local user.email "haqikuy470@gmail.com"
+          git config --local user.name "HaqiKuy470"
+          
+          git add daily_quote.md
+
+          git commit -m "docs: add daily quote from ${{ env.author }}" || echo "No changes to commit"
+          git push
