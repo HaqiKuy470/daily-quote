@@ -3,7 +3,7 @@ name: Daily Quote Committer
 on:
   schedule:
     # Berjalan otomatis setiap hari (misal jam 07:00 WIB / 00:00 UTC)
-    - cron: '0 0 * * *'
+    - cron: '0 2 * * *'
   workflow_dispatch: # Bisa dijalankan manual lewat tab Actions
 
 permissions:
