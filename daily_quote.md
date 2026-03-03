@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "The fear of death is more to be feared, than death itself."
+> "To seek greatness is the only righteous vengeance."
 
-- **Publilius Syrus**
+- **Criss Jami**
 
-_Last updated on: Mon Mar  2 11:19:43 WIB 2026_
+_Last updated on: Tue Mar  3 11:20:06 WIB 2026_
