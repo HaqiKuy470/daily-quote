@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "To seek greatness is the only righteous vengeance."
+> "The strength of a wall is neither greater nor less than the courage of the men who defend it. "
 
-- **Criss Jami**
+- **Genghis Khan**
 
-_Last updated on: Tue Mar  3 11:20:06 WIB 2026_
+_Last updated on: Wed Mar  4 11:12:26 WIB 2026_
