@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "The strength of a wall is neither greater nor less than the courage of the men who defend it. "
+> "Everything eaten is killed. Every meal is a sacrifice."
 
-- **Genghis Khan**
+- **Adi Da Samraj**
 
-_Last updated on: Wed Mar  4 11:12:26 WIB 2026_
+_Last updated on: Thu Mar  5 11:16:45 WIB 2026_
