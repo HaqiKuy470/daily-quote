@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Everything eaten is killed. Every meal is a sacrifice."
+> "Yesterday is but today's memory, tomorrow is today's dream."
 
-- **Adi Da Samraj**
+- **Kahlil Gibran**
 
-_Last updated on: Thu Mar  5 11:16:45 WIB 2026_
+_Last updated on: Fri Mar  6 11:13:14 WIB 2026_
