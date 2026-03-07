@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Yesterday is but today's memory, tomorrow is today's dream."
+> "If you take responsibility for yourself you will develop a hunger to accomplish your dream."
 
-- **Kahlil Gibran**
+- **Les Brown**
 
-_Last updated on: Fri Mar  6 11:13:14 WIB 2026_
+_Last updated on: Sat Mar  7 11:04:30 WIB 2026_
