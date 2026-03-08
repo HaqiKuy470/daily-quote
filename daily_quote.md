@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "If you take responsibility for yourself you will develop a hunger to accomplish your dream."
+> "Realize deeply that the present moment is all you ever have. "
 
-- **Les Brown**
+- **Eckhart Tolle**
 
-_Last updated on: Sat Mar  7 11:04:30 WIB 2026_
+_Last updated on: Sun Mar  8 11:16:10 WIB 2026_
