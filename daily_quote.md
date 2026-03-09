@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Realize deeply that the present moment is all you ever have. "
+> "Life is what happens to you while you're busy making other plans."
 
-- **Eckhart Tolle**
+- **John Lennon**
 
-_Last updated on: Sun Mar  8 11:16:10 WIB 2026_
+_Last updated on: Mon Mar  9 11:23:10 WIB 2026_
