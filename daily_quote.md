@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Life is what happens to you while you're busy making other plans."
+> "It is our experiences that mold us into who we are...during times of adversity our true character will show."
 
-- **John Lennon**
+- **Unknown**
 
-_Last updated on: Mon Mar  9 11:23:10 WIB 2026_
+_Last updated on: Tue Mar 10 11:14:03 WIB 2026_
