@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "It is our experiences that mold us into who we are...during times of adversity our true character will show."
+> "True knowledge exists in knowing that you know nothing."
 
-- **Unknown**
+- **Socrates**
 
-_Last updated on: Tue Mar 10 11:14:03 WIB 2026_
+_Last updated on: Wed Mar 11 11:14:18 WIB 2026_
