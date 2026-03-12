@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "True knowledge exists in knowing that you know nothing."
+> "Wit is educated insolence."
 
-- **Socrates**
+- **Aristotle**
 
-_Last updated on: Wed Mar 11 11:14:18 WIB 2026_
+_Last updated on: Thu Mar 12 11:19:05 WIB 2026_
