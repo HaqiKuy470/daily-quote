@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Wit is educated insolence."
+> "Be the change that you want to see in the world."
 
-- **Aristotle**
+- **Mahatma Gandhi**
 
-_Last updated on: Thu Mar 12 11:19:05 WIB 2026_
+_Last updated on: Fri Mar 13 11:17:15 WIB 2026_
