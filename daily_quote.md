@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Be the change that you want to see in the world."
+> "Turn your wounds into wisdom. "
 
-- **Mahatma Gandhi**
+- **Oprah Winfrey**
 
-_Last updated on: Fri Mar 13 11:17:15 WIB 2026_
+_Last updated on: Sat Mar 14 11:14:51 WIB 2026_
