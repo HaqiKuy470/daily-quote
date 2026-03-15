@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Turn your wounds into wisdom. "
+> "Either you choose to stay in the shallow end of the pool or you go out into the ocean."
 
-- **Oprah Winfrey**
+- **Christopher Reeve**
 
-_Last updated on: Sat Mar 14 11:14:51 WIB 2026_
+_Last updated on: Sun Mar 15 11:36:23 WIB 2026_
