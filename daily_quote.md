@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Either you choose to stay in the shallow end of the pool or you go out into the ocean."
+> "It's the possibility of having a dream come true that makes life interesting."
 
-- **Christopher Reeve**
+- **Paulo Coelho**
 
-_Last updated on: Sun Mar 15 11:36:23 WIB 2026_
+_Last updated on: Mon Mar 16 11:44:20 WIB 2026_
