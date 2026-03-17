@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "It's the possibility of having a dream come true that makes life interesting."
+> "Difficulties strengthen the mind, as labor does the body. "
 
-- **Paulo Coelho**
+- **Seneca**
 
-_Last updated on: Mon Mar 16 11:44:20 WIB 2026_
+_Last updated on: Tue Mar 17 11:23:15 WIB 2026_
