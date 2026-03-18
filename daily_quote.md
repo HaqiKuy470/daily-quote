@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Difficulties strengthen the mind, as labor does the body. "
+> "Natural talent only determines the limits of your athletic potential. It's dedication and a willingness to discipline your life that makes you great."
 
-- **Seneca**
+- **Billie Jean King**
 
-_Last updated on: Tue Mar 17 11:23:15 WIB 2026_
+_Last updated on: Wed Mar 18 11:28:32 WIB 2026_
