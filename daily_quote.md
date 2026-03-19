@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Natural talent only determines the limits of your athletic potential. It's dedication and a willingness to discipline your life that makes you great."
+> "Teachers open the door. You enter by yourself. "
 
-- **Billie Jean King**
+- **Chinese Proverb**
 
-_Last updated on: Wed Mar 18 11:28:32 WIB 2026_
+_Last updated on: Thu Mar 19 11:27:30 WIB 2026_
