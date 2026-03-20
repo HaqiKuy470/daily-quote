@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Teachers open the door. You enter by yourself. "
+> "Once you learn to quit, it becomes a habit."
 
-- **Chinese Proverb**
+- **Vince Lombardi**
 
-_Last updated on: Thu Mar 19 11:27:30 WIB 2026_
+_Last updated on: Fri Mar 20 11:19:22 WIB 2026_
