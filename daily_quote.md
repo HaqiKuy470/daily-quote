@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Once you learn to quit, it becomes a habit."
+> "There is no medicine like hope, no incentive so great, and no tonic so powerful as expectation of something tomorrow. "
 
-- **Vince Lombardi**
+- **Orison Swett Marden**
 
-_Last updated on: Fri Mar 20 11:19:22 WIB 2026_
+_Last updated on: Sat Mar 21 11:09:08 WIB 2026_
