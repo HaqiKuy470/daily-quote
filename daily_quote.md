@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "The most efficient way of rendering the poor harmless is to teach them to want to imitate the rich."
+> "Some people feel the rain. Others just get wet. "
 
-- **Carlos Ruiz Zafon**
+- **Bob Dylan**
 
-_Last updated on: Sun Mar 22 11:24:42 WIB 2026_
+_Last updated on: Mon Mar 23 11:33:32 WIB 2026_
