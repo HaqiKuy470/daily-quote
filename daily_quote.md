@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Some people feel the rain. Others just get wet. "
+> "The best teacher is experience and not through someone's distorted point of view."
 
-- **Bob Dylan**
+- **Jack Kerouac**
 
-_Last updated on: Mon Mar 23 11:33:32 WIB 2026_
+_Last updated on: Tue Mar 24 11:23:52 WIB 2026_
