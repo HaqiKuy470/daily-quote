@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "The best teacher is experience and not through someone's distorted point of view."
+> "Many of life's failures are people who did not realize how close they were to success when they gave up."
 
-- **Jack Kerouac**
+- **Thomas Edison**
 
-_Last updated on: Tue Mar 24 11:23:52 WIB 2026_
+_Last updated on: Wed Mar 25 11:25:25 WIB 2026_
