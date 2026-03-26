@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Many of life's failures are people who did not realize how close they were to success when they gave up."
+> "Our greatest glory is not in never falling but in rising every time we fall."
 
-- **Thomas Edison**
+- **Confucius**
 
-_Last updated on: Wed Mar 25 11:25:25 WIB 2026_
+_Last updated on: Thu Mar 26 11:37:14 WIB 2026_
