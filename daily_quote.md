@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Our greatest glory is not in never falling but in rising every time we fall."
+> "Peace is not the absence of conflict, but the ability to cope with it."
 
-- **Confucius**
+- **Unknown**
 
-_Last updated on: Thu Mar 26 11:37:14 WIB 2026_
+_Last updated on: Fri Mar 27 11:37:36 WIB 2026_
