@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Peace is not the absence of conflict, but the ability to cope with it."
+> "Most of us live our lives by accident - we live as it happens. Fulfilment comes when we live our lives on purpose."
 
-- **Unknown**
+- **Simon Sinek**
 
-_Last updated on: Fri Mar 27 11:37:36 WIB 2026_
+_Last updated on: Sat Mar 28 11:25:20 WIB 2026_
