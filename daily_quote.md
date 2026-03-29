@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Most of us live our lives by accident - we live as it happens. Fulfilment comes when we live our lives on purpose."
+> "Go for it now. The future is promised to no one."
 
-- **Simon Sinek**
+- **Wayne Dyer**
 
-_Last updated on: Sat Mar 28 11:25:20 WIB 2026_
+_Last updated on: Sun Mar 29 11:41:24 WIB 2026_
