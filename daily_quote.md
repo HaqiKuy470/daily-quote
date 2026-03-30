@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Go for it now. The future is promised to no one."
+> "Every man's work, whether it be literature or music or pictures or architecture or anything else, is always a portrait of himself."
 
-- **Wayne Dyer**
+- **Samuel Butler**
 
-_Last updated on: Sun Mar 29 11:41:24 WIB 2026_
+_Last updated on: Mon Mar 30 11:49:44 WIB 2026_
