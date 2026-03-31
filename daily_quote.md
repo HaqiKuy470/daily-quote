@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Every man's work, whether it be literature or music or pictures or architecture or anything else, is always a portrait of himself."
+> "Attitude drives actions. Actions drive results. Results drive lifestyles."
 
-- **Samuel Butler**
+- **Jim Rohn**
 
-_Last updated on: Mon Mar 30 11:49:44 WIB 2026_
+_Last updated on: Tue Mar 31 11:40:21 WIB 2026_
