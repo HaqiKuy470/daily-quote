@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Attitude drives actions. Actions drive results. Results drive lifestyles."
+> "Leadership starts at the top."
 
-- **Jim Rohn**
+- **Morgan Wootten**
 
-_Last updated on: Tue Mar 31 11:40:21 WIB 2026_
+_Last updated on: Wed Apr  1 11:50:55 WIB 2026_
