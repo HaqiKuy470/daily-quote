@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Leadership starts at the top."
+> "Life is a long lesson in humility. "
 
-- **Morgan Wootten**
+- **James Matthew Barrie**
 
-_Last updated on: Wed Apr  1 11:50:55 WIB 2026_
+_Last updated on: Thu Apr  2 11:34:14 WIB 2026_
