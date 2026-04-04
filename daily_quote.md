@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Let not your mind run on what you lack as much as on what you have already."
+> "The greatest mistake you can make in life is to be continually fearing you will make one."
 
-- **Marcus Aurelius**
+- **Elbert Hubbard**
 
-_Last updated on: Fri Apr  3 11:34:16 WIB 2026_
+_Last updated on: Sat Apr  4 11:22:34 WIB 2026_
