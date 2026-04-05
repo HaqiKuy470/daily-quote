@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "The greatest mistake you can make in life is to be continually fearing you will make one."
+> "Don't seek, don't search, don't ask, don't knock, don't demand - relax."
 
-- **Elbert Hubbard**
+- **Osho**
 
-_Last updated on: Sat Apr  4 11:22:34 WIB 2026_
+_Last updated on: Sun Apr  5 11:41:26 WIB 2026_
