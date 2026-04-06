@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Don't seek, don't search, don't ask, don't knock, don't demand - relax."
+> "The greatest value of a picture is when it forces us to notice what we never expected to see."
 
-- **Osho**
+- **John Tukey**
 
-_Last updated on: Sun Apr  5 11:41:26 WIB 2026_
+_Last updated on: Mon Apr  6 11:48:52 WIB 2026_
