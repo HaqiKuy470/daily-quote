@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Our virtues and our failings are inseparable, like force and matter. When they separate, man is no more. "
+> "Decide what your truth is. Then live it."
 
-- **Nikola Tesla**
+- **Kamal Ravikant**
 
-_Last updated on: Wed Apr  8 11:41:34 WIB 2026_
+_Last updated on: Thu Apr  9 11:38:27 WIB 2026_
