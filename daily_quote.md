@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Decide what your truth is. Then live it."
+> "A man is literally what he thinks."
 
-- **Kamal Ravikant**
+- **James Allen**
 
-_Last updated on: Thu Apr  9 11:38:27 WIB 2026_
+_Last updated on: Fri Apr 10 11:51:24 WIB 2026_
