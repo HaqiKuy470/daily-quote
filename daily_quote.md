@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "A man is literally what he thinks."
+> "Man is affected not by events but by the view he takes of them. "
 
-- **James Allen**
+- **Seneca**
 
-_Last updated on: Fri Apr 10 11:51:24 WIB 2026_
+_Last updated on: Sat Apr 11 11:25:57 WIB 2026_
