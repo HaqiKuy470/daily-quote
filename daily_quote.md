@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Man is affected not by events but by the view he takes of them. "
+> "You have to accept whatever comes, and the only important thing is that you meet it with the best you have to give."
 
-- **Seneca**
+- **Eleanor Roosevelt**
 
-_Last updated on: Sat Apr 11 11:25:57 WIB 2026_
+_Last updated on: Sun Apr 12 11:50:59 WIB 2026_
