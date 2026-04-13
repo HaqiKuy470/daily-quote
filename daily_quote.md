@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "You have to accept whatever comes, and the only important thing is that you meet it with the best you have to give."
+> "We are most nearly ourselves when we achieve the seriousness of the child at play."
 
-- **Eleanor Roosevelt**
+- **Heraclitus**
 
-_Last updated on: Sun Apr 12 11:50:59 WIB 2026_
+_Last updated on: Mon Apr 13 12:18:43 WIB 2026_
