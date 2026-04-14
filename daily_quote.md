@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "We are most nearly ourselves when we achieve the seriousness of the child at play."
+> "The greatest test of courage on earth is to bear defeat without losing heart."
 
-- **Heraclitus**
+- **Robert Greene**
 
-_Last updated on: Mon Apr 13 12:18:43 WIB 2026_
+_Last updated on: Tue Apr 14 11:49:05 WIB 2026_
