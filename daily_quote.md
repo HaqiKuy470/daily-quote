@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Whatever happened, happened for the good. Whatever is happening, is happening for the good. Whatever will happen, will also happen for the good."
+> "The greatest discovery of all time is that a person can change their future by merely changing their attitude."
 
-- **Bhagavad Gita**
+- **Oprah Winfrey**
 
-_Last updated on: Wed Apr 15 11:49:27 WIB 2026_
+_Last updated on: Thu Apr 16 11:55:20 WIB 2026_
