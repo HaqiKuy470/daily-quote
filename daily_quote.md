@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "The greatest discovery of all time is that a person can change their future by merely changing their attitude."
+> "Peace is not the absence of conflict, but the ability to cope with it."
 
-- **Oprah Winfrey**
+- **Unknown**
 
-_Last updated on: Thu Apr 16 11:55:20 WIB 2026_
+_Last updated on: Fri Apr 17 11:52:54 WIB 2026_
