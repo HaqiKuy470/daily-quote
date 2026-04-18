@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Peace is not the absence of conflict, but the ability to cope with it."
+> "If you want to change how you see your problems, you have to change what you value and/or how you measure failure/success."
 
-- **Unknown**
+- **Mark Manson**
 
-_Last updated on: Fri Apr 17 11:52:54 WIB 2026_
+_Last updated on: Sat Apr 18 11:36:16 WIB 2026_
