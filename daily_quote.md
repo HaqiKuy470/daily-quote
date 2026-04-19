@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "If you want to change how you see your problems, you have to change what you value and/or how you measure failure/success."
+> "Trust is the glue that holds people together and is the lubricant that keeps an organization moving forward."
 
-- **Mark Manson**
+- **Colin Powell**
 
-_Last updated on: Sat Apr 18 11:36:16 WIB 2026_
+_Last updated on: Sun Apr 19 11:55:03 WIB 2026_
