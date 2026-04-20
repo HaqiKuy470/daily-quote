@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Trust is the glue that holds people together and is the lubricant that keeps an organization moving forward."
+> "Listen to the secret sound, the real sound, which is inside you."
 
-- **Colin Powell**
+- **Kabir**
 
-_Last updated on: Sun Apr 19 11:55:03 WIB 2026_
+_Last updated on: Mon Apr 20 12:17:47 WIB 2026_
