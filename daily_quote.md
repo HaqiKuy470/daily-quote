@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Listen to the secret sound, the real sound, which is inside you."
+> "You're always free to change your mind and choose a different future, or a different past."
 
-- **Kabir**
+- **Richard Bach**
 
-_Last updated on: Mon Apr 20 12:17:47 WIB 2026_
+_Last updated on: Tue Apr 21 11:52:13 WIB 2026_
