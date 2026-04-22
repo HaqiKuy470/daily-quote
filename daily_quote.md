@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "You're always free to change your mind and choose a different future, or a different past."
+> "The outer conditions of a person's life will always be found to reflect their inner beliefs."
 
-- **Richard Bach**
+- **James Allen**
 
-_Last updated on: Tue Apr 21 11:52:13 WIB 2026_
+_Last updated on: Wed Apr 22 11:50:13 WIB 2026_
