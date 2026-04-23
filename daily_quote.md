@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "The outer conditions of a person's life will always be found to reflect their inner beliefs."
+> "Never was anything great achieved without danger."
 
-- **James Allen**
+- **Niccolo Machiavelli**
 
-_Last updated on: Wed Apr 22 11:50:13 WIB 2026_
+_Last updated on: Thu Apr 23 11:54:07 WIB 2026_
