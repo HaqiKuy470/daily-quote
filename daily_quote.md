@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Never was anything great achieved without danger."
+> "Faithless is he that says farewell when the road darkens."
 
-- **Niccolo Machiavelli**
+- **J.R.R. Tolkien**
 
-_Last updated on: Thu Apr 23 11:54:07 WIB 2026_
+_Last updated on: Fri Apr 24 12:12:40 WIB 2026_
