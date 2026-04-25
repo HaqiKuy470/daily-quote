@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Faithless is he that says farewell when the road darkens."
+> "The best of us sometimes eat our words. "
 
-- **J.R.R. Tolkien**
+- **Albus Dumbledore**
 
-_Last updated on: Fri Apr 24 12:12:40 WIB 2026_
+_Last updated on: Sat Apr 25 11:40:01 WIB 2026_
