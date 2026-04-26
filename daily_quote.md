@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "The best of us sometimes eat our words. "
+> "As mortals, we're ruled by conditions, not by ourselves."
 
-- **Albus Dumbledore**
+- **Bodhidharma**
 
-_Last updated on: Sat Apr 25 11:40:01 WIB 2026_
+_Last updated on: Sun Apr 26 12:16:17 WIB 2026_
