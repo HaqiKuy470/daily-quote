@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "As mortals, we're ruled by conditions, not by ourselves."
+> "Luck is a matter of preparation meeting opportunity."
 
-- **Bodhidharma**
+- **Oprah Winfrey**
 
-_Last updated on: Sun Apr 26 12:16:17 WIB 2026_
+_Last updated on: Mon Apr 27 12:29:26 WIB 2026_
