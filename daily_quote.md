@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Luck is a matter of preparation meeting opportunity."
+> "You must be willing to do what others won't do, to have what others won't have."
 
-- **Oprah Winfrey**
+- **Les Brown**
 
-_Last updated on: Mon Apr 27 12:29:26 WIB 2026_
+_Last updated on: Tue Apr 28 12:35:36 WIB 2026_
