@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "You must be willing to do what others won't do, to have what others won't have."
+> "Sometimes good things fall apart so better things can fall together."
 
-- **Les Brown**
+- **Marilyn Monroe**
 
-_Last updated on: Tue Apr 28 12:35:36 WIB 2026_
+_Last updated on: Wed Apr 29 12:31:05 WIB 2026_
