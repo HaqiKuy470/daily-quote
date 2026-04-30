@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Sometimes good things fall apart so better things can fall together."
+> "The more knowledge you have, the more you're free to rely on your instincts."
 
-- **Marilyn Monroe**
+- **Arnold Schwarzenegger**
 
-_Last updated on: Wed Apr 29 12:31:05 WIB 2026_
+_Last updated on: Thu Apr 30 12:34:59 WIB 2026_
