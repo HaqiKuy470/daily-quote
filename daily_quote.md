@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "The more knowledge you have, the more you're free to rely on your instincts."
+> "From morning till night, we should never rely on a single thing."
 
-- **Arnold Schwarzenegger**
+- **Huang Po**
 
-_Last updated on: Thu Apr 30 12:34:59 WIB 2026_
+_Last updated on: Fri May  1 12:46:17 WIB 2026_
