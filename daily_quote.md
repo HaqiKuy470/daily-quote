@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "From morning till night, we should never rely on a single thing."
+> "It is often safer to be in chains than to be free. "
 
-- **Huang Po**
+- **Franz Kafka**
 
-_Last updated on: Fri May  1 12:46:17 WIB 2026_
+_Last updated on: Sat May  2 12:15:40 WIB 2026_
