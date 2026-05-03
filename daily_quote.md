@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "It is often safer to be in chains than to be free. "
+> "Doubt is an uncomfortable condition, but certainty is a ridiculous one."
 
-- **Franz Kafka**
+- **Voltaire**
 
-_Last updated on: Sat May  2 12:15:40 WIB 2026_
+_Last updated on: Sun May  3 12:34:59 WIB 2026_
