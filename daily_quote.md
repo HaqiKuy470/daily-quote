@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Doubt is an uncomfortable condition, but certainty is a ridiculous one."
+> "Obstacles are those frightful things you see when you take your eyes off your goal."
 
-- **Voltaire**
+- **Henry Ford**
 
-_Last updated on: Sun May  3 12:34:59 WIB 2026_
+_Last updated on: Mon May  4 12:39:19 WIB 2026_
