@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Obstacles are those frightful things you see when you take your eyes off your goal."
+> "Unless you change how you are, you will always have what you got."
 
-- **Henry Ford**
+- **Jim Rohn**
 
-_Last updated on: Mon May  4 12:39:19 WIB 2026_
+_Last updated on: Tue May  5 12:19:26 WIB 2026_
