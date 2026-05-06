@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Unless you change how you are, you will always have what you got."
+> "You are not only responsible for what you say, but also for what you do not say. "
 
-- **Jim Rohn**
+- **Martin Luther**
 
-_Last updated on: Tue May  5 12:19:26 WIB 2026_
+_Last updated on: Wed May  6 12:33:47 WIB 2026_
