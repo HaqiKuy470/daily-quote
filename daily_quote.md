@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Zen insists that the whole trouble is just our failure to realize that there is no problem."
+> "Experience is simply the name we give our mistakes. "
 
-- **Bruce Lee**
+- **Oscar Wilde**
 
-_Last updated on: Thu May  7 12:36:14 WIB 2026_
+_Last updated on: Fri May  8 11:56:13 WIB 2026_
