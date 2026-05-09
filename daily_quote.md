@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Experience is simply the name we give our mistakes. "
+> "Science can flourish only in an atmosphere of free speech. "
 
-- **Oscar Wilde**
+- **Albert Einstein**
 
-_Last updated on: Fri May  8 11:56:13 WIB 2026_
+_Last updated on: Sat May  9 12:26:21 WIB 2026_
