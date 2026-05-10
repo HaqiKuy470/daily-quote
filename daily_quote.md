@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Science can flourish only in an atmosphere of free speech. "
+> "The clock indicates the moment...but what does eternity indicate?"
 
-- **Albert Einstein**
+- **Walt Whitman**
 
-_Last updated on: Sat May  9 12:26:21 WIB 2026_
+_Last updated on: Sun May 10 12:41:29 WIB 2026_
