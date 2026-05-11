@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "The clock indicates the moment...but what does eternity indicate?"
+> "Just as true humor is laughter at oneself, true humanity is knowledge of oneself."
 
-- **Walt Whitman**
+- **Alan Watts**
 
-_Last updated on: Sun May 10 12:41:29 WIB 2026_
+_Last updated on: Mon May 11 13:03:37 WIB 2026_
