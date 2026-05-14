@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "The person who never made a mistake never tried anything new."
+> "A zen master's life is one continuous mistake."
 
-- **Albert Einstein**
+- **Dogen**
 
-_Last updated on: Wed May 13 12:53:20 WIB 2026_
+_Last updated on: Thu May 14 12:52:27 WIB 2026_
