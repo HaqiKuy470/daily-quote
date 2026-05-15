@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "A zen master's life is one continuous mistake."
+> "The search for happiness is one of the chief sources of unhappiness."
 
-- **Dogen**
+- **Eric Hoffer**
 
-_Last updated on: Thu May 14 12:52:27 WIB 2026_
+_Last updated on: Fri May 15 12:59:08 WIB 2026_
