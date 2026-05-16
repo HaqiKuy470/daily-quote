@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "The search for happiness is one of the chief sources of unhappiness."
+> "Life is like stepping onto a boat which is about to sail out to sea and sink."
 
-- **Eric Hoffer**
+- **Shunryu Suzuki**
 
-_Last updated on: Fri May 15 12:59:08 WIB 2026_
+_Last updated on: Sat May 16 12:31:31 WIB 2026_
