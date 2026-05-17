@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Life is like stepping onto a boat which is about to sail out to sea and sink."
+> "Contemplation often makes life miserable. We should act more, think less, and stop watching ourselves live."
 
-- **Shunryu Suzuki**
+- **Nicolas Chamfort**
 
-_Last updated on: Sat May 16 12:31:31 WIB 2026_
+_Last updated on: Sun May 17 12:53:07 WIB 2026_
