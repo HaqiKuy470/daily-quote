@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Contemplation often makes life miserable. We should act more, think less, and stop watching ourselves live."
+> "It's not whether you get knocked down, its whether you get back up."
 
-- **Nicolas Chamfort**
+- **Vince Lombardi**
 
-_Last updated on: Sun May 17 12:53:07 WIB 2026_
+_Last updated on: Mon May 18 13:19:43 WIB 2026_
