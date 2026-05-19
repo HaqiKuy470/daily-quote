@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "It's not whether you get knocked down, its whether you get back up."
+> "When we strive to become better than we are, everything around us becomes better, too."
 
-- **Vince Lombardi**
+- **Paulo Coelho**
 
-_Last updated on: Mon May 18 13:19:43 WIB 2026_
+_Last updated on: Tue May 19 13:14:19 WIB 2026_
