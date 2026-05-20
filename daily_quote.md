@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "When we strive to become better than we are, everything around us becomes better, too."
+> "Wrong turns are as important as right turns. More important, sometimes."
 
-- **Paulo Coelho**
+- **Richard Bach**
 
-_Last updated on: Tue May 19 13:14:19 WIB 2026_
+_Last updated on: Wed May 20 13:14:19 WIB 2026_
