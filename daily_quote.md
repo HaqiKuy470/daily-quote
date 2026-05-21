@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Wrong turns are as important as right turns. More important, sometimes."
+> "Success is good at any age, but the sooner you find it, the longer you will enjoy it."
 
-- **Richard Bach**
+- **Napoleon Hill**
 
-_Last updated on: Wed May 20 13:14:19 WIB 2026_
+_Last updated on: Thu May 21 13:17:32 WIB 2026_
