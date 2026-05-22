@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Success is good at any age, but the sooner you find it, the longer you will enjoy it."
+> "What you are afraid of is never as bad as what you imagine. The fear you let build up in your mind is worse than the situation that actually exists."
 
-- **Napoleon Hill**
+- **Spencer Johnson**
 
-_Last updated on: Thu May 21 13:17:32 WIB 2026_
+_Last updated on: Fri May 22 13:13:47 WIB 2026_
