@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "We lie the loudest when we lie to ourselves."
+> "Life is a constant series of opportunities."
 
-- **Eric Hoffer**
+- **Ming-Dao Deng**
 
-_Last updated on: Sat May 23 12:43:23 WIB 2026_
+_Last updated on: Sun May 24 13:06:44 WIB 2026_
