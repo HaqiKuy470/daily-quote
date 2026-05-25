@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Life is a constant series of opportunities."
+> "Once you choose hope, anything's possible."
 
-- **Ming-Dao Deng**
+- **Christopher Reeve**
 
-_Last updated on: Sun May 24 13:06:44 WIB 2026_
+_Last updated on: Mon May 25 13:40:46 WIB 2026_
