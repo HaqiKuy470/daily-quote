@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Once you choose hope, anything's possible."
+> "An action committed in anger is an action doomed to failure."
 
-- **Christopher Reeve**
+- **Genghis Khan**
 
-_Last updated on: Mon May 25 13:40:46 WIB 2026_
+_Last updated on: Tue May 26 13:12:08 WIB 2026_
