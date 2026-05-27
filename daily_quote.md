@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "An action committed in anger is an action doomed to failure."
+> "To improve is to change, so to be perfect is to change often."
 
-- **Genghis Khan**
+- **Winston Churchill**
 
-_Last updated on: Tue May 26 13:12:08 WIB 2026_
+_Last updated on: Wed May 27 13:26:13 WIB 2026_
