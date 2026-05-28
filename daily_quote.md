@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "To improve is to change, so to be perfect is to change often."
+> "Freedom itself demands discomfort."
 
-- **Winston Churchill**
+- **Mark Manson**
 
-_Last updated on: Wed May 27 13:26:13 WIB 2026_
+_Last updated on: Thu May 28 13:18:11 WIB 2026_
