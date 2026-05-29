@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Freedom itself demands discomfort."
+> "Everyone has the right to make his own decisions, but none has the right to force his decision on others."
 
-- **Mark Manson**
+- **Ayn Rand**
 
-_Last updated on: Thu May 28 13:18:11 WIB 2026_
+_Last updated on: Fri May 29 13:19:53 WIB 2026_
