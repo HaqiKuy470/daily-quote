@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Everyone has the right to make his own decisions, but none has the right to force his decision on others."
+> "Smile, breathe and go slowly."
 
-- **Ayn Rand**
+- **Thich Nhat Hanh**
 
-_Last updated on: Fri May 29 13:19:53 WIB 2026_
+_Last updated on: Sat May 30 12:52:20 WIB 2026_
