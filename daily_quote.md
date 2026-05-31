@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Smile, breathe and go slowly."
+> "Success is getting what you want, happiness is wanting what you get."
 
-- **Thich Nhat Hanh**
+- **W.P. Kinsella**
 
-_Last updated on: Sat May 30 12:52:20 WIB 2026_
+_Last updated on: Sun May 31 13:25:09 WIB 2026_
