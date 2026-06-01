@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Success is getting what you want, happiness is wanting what you get."
+> "If you genuinely want something, don't wait for it - teach yourself."
 
-- **W.P. Kinsella**
+- **Gurbaksh Chahal**
 
-_Last updated on: Sun May 31 13:25:09 WIB 2026_
+_Last updated on: Mon Jun  1 14:06:00 WIB 2026_
