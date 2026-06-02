@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "If you genuinely want something, don't wait for it - teach yourself."
+> "A man who dares to waste one hour of time has not discovered the value of life."
 
-- **Gurbaksh Chahal**
+- **Charles Darwin**
 
-_Last updated on: Mon Jun  1 14:06:00 WIB 2026_
+_Last updated on: Tue Jun  2 13:47:29 WIB 2026_
