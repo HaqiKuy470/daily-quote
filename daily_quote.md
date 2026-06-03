@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "A man who dares to waste one hour of time has not discovered the value of life."
+> "No one has ever become poor by giving."
 
-- **Charles Darwin**
+- **Anne Frank**
 
-_Last updated on: Tue Jun  2 13:47:29 WIB 2026_
+_Last updated on: Wed Jun  3 13:58:38 WIB 2026_
