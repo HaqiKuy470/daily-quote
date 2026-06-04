@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "No one has ever become poor by giving."
+> "The search for happiness is one of the chief sources of unhappiness."
 
-- **Anne Frank**
+- **Eric Hoffer**
 
-_Last updated on: Wed Jun  3 13:58:38 WIB 2026_
+_Last updated on: Thu Jun  4 13:48:28 WIB 2026_
