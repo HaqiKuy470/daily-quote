@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "The search for happiness is one of the chief sources of unhappiness."
+> "Everything starts with a dream. A particle of our imagination that teases us of what the future could be like, as long as we fight for it."
 
-- **Eric Hoffer**
+- **Gurbaksh Chahal**
 
-_Last updated on: Thu Jun  4 13:48:28 WIB 2026_
+_Last updated on: Fri Jun  5 13:37:12 WIB 2026_
