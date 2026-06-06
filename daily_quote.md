@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Everything starts with a dream. A particle of our imagination that teases us of what the future could be like, as long as we fight for it."
+> "Sadness is but a wall between two gardens."
 
-- **Gurbaksh Chahal**
+- **Kahlil Gibran**
 
-_Last updated on: Fri Jun  5 13:37:12 WIB 2026_
+_Last updated on: Sat Jun  6 12:58:14 WIB 2026_
