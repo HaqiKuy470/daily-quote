@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Sadness is but a wall between two gardens."
+> "The only limit to our realization of tomorrow will be our doubts of today."
 
-- **Kahlil Gibran**
+- **Colin R. Davis**
 
-_Last updated on: Sat Jun  6 12:58:14 WIB 2026_
+_Last updated on: Sun Jun  7 13:35:09 WIB 2026_
