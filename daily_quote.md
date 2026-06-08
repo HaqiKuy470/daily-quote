@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "The only limit to our realization of tomorrow will be our doubts of today."
+> "The single biggest problem in communication is the illusion that it has taken place."
 
-- **Colin R. Davis**
+- **George Bernard Shaw**
 
-_Last updated on: Sun Jun  7 13:35:09 WIB 2026_
+_Last updated on: Mon Jun  8 13:50:40 WIB 2026_
