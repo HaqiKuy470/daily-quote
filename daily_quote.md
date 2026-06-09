@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "The single biggest problem in communication is the illusion that it has taken place."
+> "You must live in the present, launch yourself on every wave, find your eternity in each moment. Fools stand on their island of opportunities and look toward another land. There is no other land; there is no other life but this."
 
-- **George Bernard Shaw**
+- **Henry David Thoreau**
 
-_Last updated on: Mon Jun  8 13:50:40 WIB 2026_
+_Last updated on: Tue Jun  9 13:14:22 WIB 2026_
