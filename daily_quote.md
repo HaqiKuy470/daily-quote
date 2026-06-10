@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "You must live in the present, launch yourself on every wave, find your eternity in each moment. Fools stand on their island of opportunities and look toward another land. There is no other land; there is no other life but this."
+> "Cleverness is not wisdom."
 
-- **Henry David Thoreau**
+- **Euripides**
 
-_Last updated on: Tue Jun  9 13:14:22 WIB 2026_
+_Last updated on: Wed Jun 10 13:36:41 WIB 2026_
