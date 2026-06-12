@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "He who can no longer pause to wonder and stand rapt in awe, is as good as dead; his eyes are closed."
+> "You can suffer the pain of change or suffer remaining the way you are."
 
-- **Albert Einstein**
+- **Joyce Meyer**
 
-_Last updated on: Thu Jun 11 13:55:26 WIB 2026_
+_Last updated on: Fri Jun 12 13:48:06 WIB 2026_
