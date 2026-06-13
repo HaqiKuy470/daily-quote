@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "You can suffer the pain of change or suffer remaining the way you are."
+> "Failure is feedback. Learn from it and move on."
 
-- **Joyce Meyer**
+- **Jack Butcher**
 
-_Last updated on: Fri Jun 12 13:48:06 WIB 2026_
+_Last updated on: Sat Jun 13 13:22:11 WIB 2026_
