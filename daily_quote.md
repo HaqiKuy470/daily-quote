@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Failure is feedback. Learn from it and move on."
+> "If anything is worth doing, do it with all your heart."
 
-- **Jack Butcher**
+- **Buddha**
 
-_Last updated on: Sat Jun 13 13:22:11 WIB 2026_
+_Last updated on: Sun Jun 14 13:47:18 WIB 2026_
