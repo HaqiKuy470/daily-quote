@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "If anything is worth doing, do it with all your heart."
+> "To lose your temper is only useful once a year."
 
-- **Buddha**
+- **Colin R. Davis**
 
-_Last updated on: Sun Jun 14 13:47:18 WIB 2026_
+_Last updated on: Mon Jun 15 14:27:02 WIB 2026_
