@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "To lose your temper is only useful once a year."
+> "The foolish reject what they see, not what they think; the wise reject what they think, not what they see."
 
-- **Colin R. Davis**
+- **Huang Po**
 
-_Last updated on: Mon Jun 15 14:27:02 WIB 2026_
+_Last updated on: Tue Jun 16 14:32:40 WIB 2026_
