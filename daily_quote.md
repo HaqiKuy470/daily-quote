@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "The foolish reject what they see, not what they think; the wise reject what they think, not what they see."
+> "Not doing it is certainly the best way to not getting it."
 
-- **Huang Po**
+- **Wayne Gretzky**
 
-_Last updated on: Tue Jun 16 14:32:40 WIB 2026_
+_Last updated on: Wed Jun 17 14:18:58 WIB 2026_
