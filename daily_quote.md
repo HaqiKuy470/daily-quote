@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Not doing it is certainly the best way to not getting it."
+> "Let the beauty of what you love be what you do."
 
-- **Wayne Gretzky**
+- **Rumi**
 
-_Last updated on: Wed Jun 17 14:18:58 WIB 2026_
+_Last updated on: Thu Jun 18 13:59:02 WIB 2026_
