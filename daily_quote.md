@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Let the beauty of what you love be what you do."
+> "Life is about not knowing and then doing something anyway."
 
-- **Rumi**
+- **Mark Manson**
 
-_Last updated on: Thu Jun 18 13:59:02 WIB 2026_
+_Last updated on: Fri Jun 19 14:18:15 WIB 2026_
