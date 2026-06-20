@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Life is about not knowing and then doing something anyway."
+> "Most of us live our lives by accident - we live as it happens. Fulfilment comes when we live our lives on purpose."
 
-- **Mark Manson**
+- **Simon Sinek**
 
-_Last updated on: Fri Jun 19 14:18:15 WIB 2026_
+_Last updated on: Sat Jun 20 13:35:29 WIB 2026_
