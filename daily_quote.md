@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Most of us live our lives by accident - we live as it happens. Fulfilment comes when we live our lives on purpose."
+> "Never doubt that a small group of thoughtful, committed citizens can change the world; indeed, it's the only thing that ever has."
 
-- **Simon Sinek**
+- **Margaret Mead**
 
-_Last updated on: Sat Jun 20 13:35:29 WIB 2026_
+_Last updated on: Sun Jun 21 13:56:24 WIB 2026_
