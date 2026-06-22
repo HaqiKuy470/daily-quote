@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Never doubt that a small group of thoughtful, committed citizens can change the world; indeed, it's the only thing that ever has."
+> "You're always free to change your mind and choose a different future, or a different past."
 
-- **Margaret Mead**
+- **Richard Bach**
 
-_Last updated on: Sun Jun 21 13:56:24 WIB 2026_
+_Last updated on: Mon Jun 22 14:31:03 WIB 2026_
