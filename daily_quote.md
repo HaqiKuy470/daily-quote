@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "You're always free to change your mind and choose a different future, or a different past."
+> "To be calm is the highest achievement of the self."
 
-- **Richard Bach**
+- **Zen Proverb**
 
-_Last updated on: Mon Jun 22 14:31:03 WIB 2026_
+_Last updated on: Tue Jun 23 13:13:28 WIB 2026_
