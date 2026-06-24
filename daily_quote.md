@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "To be calm is the highest achievement of the self."
+> "Begin now to be what you will be hereafter."
 
-- **Zen Proverb**
+- **St. Jerome**
 
-_Last updated on: Tue Jun 23 13:13:28 WIB 2026_
+_Last updated on: Wed Jun 24 13:11:42 WIB 2026_
