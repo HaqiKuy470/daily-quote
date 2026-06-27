@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Keep true. Never be ashamed of doing right. Decide what you think is right and stick to it."
+> "Persistence. Perfection. Patience. Power. Prioritize your passion. It keeps you sane."
 
-- **George Eliot**
+- **Criss Jami**
 
-_Last updated on: Thu Jun 25 13:13:45 WIB 2026_
+_Last updated on: Sat Jun 27 12:57:25 WIB 2026_
