@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Persistence. Perfection. Patience. Power. Prioritize your passion. It keeps you sane."
+> "What the mind can conceive and believe, and the heart desire, you can achieve."
 
-- **Criss Jami**
+- **Norman Vincent Peale**
 
-_Last updated on: Sat Jun 27 12:57:25 WIB 2026_
+_Last updated on: Sun Jun 28 13:24:31 WIB 2026_
