@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "What the mind can conceive and believe, and the heart desire, you can achieve."
+> "Confidence is like a dragon where, for every head cut off, two more heads grow back."
 
-- **Norman Vincent Peale**
+- **Criss Jami**
 
-_Last updated on: Sun Jun 28 13:24:31 WIB 2026_
+_Last updated on: Mon Jun 29 13:55:33 WIB 2026_
