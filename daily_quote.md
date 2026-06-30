@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Confidence is like a dragon where, for every head cut off, two more heads grow back."
+> "Don't be afraid to give up the good to go for the great."
 
-- **Criss Jami**
+- **John D. Rockefeller**
 
-_Last updated on: Mon Jun 29 13:55:33 WIB 2026_
+_Last updated on: Tue Jun 30 13:18:01 WIB 2026_
