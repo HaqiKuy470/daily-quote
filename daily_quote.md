@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Pain results from a judgment you have made about a thing. Remove the judgment and the pain disappears."
+> "Life is about not knowing and then doing something anyway."
 
-- **Neale Donald Walsch**
+- **Mark Manson**
 
-_Last updated on: Wed Jul  1 13:38:35 WIB 2026_
+_Last updated on: Thu Jul  2 13:04:30 WIB 2026_
