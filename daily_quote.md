@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Life is about not knowing and then doing something anyway."
+> "Never trust he who trusts everyone."
 
-- **Mark Manson**
+- **Carlos Ruiz Zafon**
 
-_Last updated on: Thu Jul  2 13:04:30 WIB 2026_
+_Last updated on: Fri Jul  3 12:58:39 WIB 2026_
