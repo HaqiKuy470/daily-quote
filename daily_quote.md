@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Never trust he who trusts everyone."
+> "Not until we are lost do we begin to understand ourselves."
 
-- **Carlos Ruiz Zafon**
+- **Henry David Thoreau**
 
-_Last updated on: Fri Jul  3 12:58:39 WIB 2026_
+_Last updated on: Sat Jul  4 12:51:18 WIB 2026_
