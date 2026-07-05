@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Not until we are lost do we begin to understand ourselves."
+> "There will always be suffering. But we must not suffer over the suffering."
 
-- **Henry David Thoreau**
+- **Alan Watts**
 
-_Last updated on: Sat Jul  4 12:51:18 WIB 2026_
+_Last updated on: Sun Jul  5 13:10:26 WIB 2026_
