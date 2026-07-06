@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "There will always be suffering. But we must not suffer over the suffering."
+> "If you do what you've always done, you'll get what you've always gotten."
 
-- **Alan Watts**
+- **Tony Robbins**
 
-_Last updated on: Sun Jul  5 13:10:26 WIB 2026_
+_Last updated on: Mon Jul  6 13:42:04 WIB 2026_
