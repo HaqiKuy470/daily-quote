@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "If you do what you've always done, you'll get what you've always gotten."
+> "Our attitude toward life determines life's attitude towards us."
 
-- **Tony Robbins**
+- **Earl Nightingale**
 
-_Last updated on: Mon Jul  6 13:42:04 WIB 2026_
+_Last updated on: Tue Jul  7 13:14:03 WIB 2026_
