@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Our attitude toward life determines life's attitude towards us."
+> "Honesty is the first chapter in the book of wisdom."
 
-- **Earl Nightingale**
+- **Thomas Jefferson**
 
-_Last updated on: Tue Jul  7 13:14:03 WIB 2026_
+_Last updated on: Wed Jul  8 12:26:45 WIB 2026_
