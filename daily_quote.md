@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Honesty is the first chapter in the book of wisdom."
+> "Art, like morality, consists of drawing the line somewhere."
 
-- **Thomas Jefferson**
+- **Gilbert Chesterton**
 
-_Last updated on: Wed Jul  8 12:26:45 WIB 2026_
+_Last updated on: Thu Jul  9 13:10:35 WIB 2026_
