@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Art, like morality, consists of drawing the line somewhere."
+> "If your mind is empty, it is always ready for anything, it is open to everything."
 
-- **Gilbert Chesterton**
+- **Shunryu Suzuki**
 
-_Last updated on: Thu Jul  9 13:10:35 WIB 2026_
+_Last updated on: Fri Jul 10 13:09:49 WIB 2026_
