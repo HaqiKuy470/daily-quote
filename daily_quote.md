@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Life is like underwear, should be changed twice a day."
+> "Life is just the same as learning to swim. Do not be afraid of making mistakes, for there is no other way of learning how to live!"
 
-- **Ray Bradbury**
+- **Alfred Adler**
 
-_Last updated on: Mon Jul 13 12:43:08 WIB 2026_
+_Last updated on: Tue Jul 14 11:55:42 WIB 2026_
