@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Life is just the same as learning to swim. Do not be afraid of making mistakes, for there is no other way of learning how to live!"
+> "If you love somebody, let them go, for if they return, they were always yours. If they don't, they never were."
 
-- **Alfred Adler**
+- **Kahlil Gibran**
 
-_Last updated on: Tue Jul 14 11:55:42 WIB 2026_
+_Last updated on: Thu Jul 16 12:15:32 WIB 2026_
