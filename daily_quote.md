@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "If you love somebody, let them go, for if they return, they were always yours. If they don't, they never were."
+> "The divine is not something high above us. It is in heaven, it is in earth, it is inside us."
 
-- **Kahlil Gibran**
+- **Morihei Ueshiba**
 
-_Last updated on: Thu Jul 16 12:15:32 WIB 2026_
+_Last updated on: Fri Jul 17 12:18:26 WIB 2026_
