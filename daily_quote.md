@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Trust is built and maintained by many small actions over time."
+> "Be approximately right rather than exactly wrong."
 
-- **Lolly Daskal**
+- **John Tukey**
 
-_Last updated on: Sat Jul 18 11:53:03 WIB 2026_
+_Last updated on: Sun Jul 19 12:27:24 WIB 2026_
