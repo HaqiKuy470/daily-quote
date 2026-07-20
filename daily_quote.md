@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Be approximately right rather than exactly wrong."
+> "This is the real secret of life - to be completely engaged with what you are doing in the here and now. And instead of calling it work, realize it is play."
 
-- **John Tukey**
+- **Alan Watts**
 
-_Last updated on: Sun Jul 19 12:27:24 WIB 2026_
+_Last updated on: Mon Jul 20 12:47:20 WIB 2026_
