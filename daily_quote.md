@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Learning never exhausts the mind."
+> "Live your life as an exclamation rather than an explanation."
 
-- **Leonardo da Vinci**
+- **Isaac Newton**
 
-_Last updated on: Fri Jul 24 12:25:15 WIB 2026_
+_Last updated on: Sat Jul 25 12:19:01 WIB 2026_
