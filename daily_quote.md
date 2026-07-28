@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Start each day with a positive thought and a grateful heart."
+> "Do not take life too seriously. You will never get out of it alive."
 
-- **Roy T. Bennett**
+- **Elbert Hubbard**
 
-_Last updated on: Sun Jul 26 12:37:09 WIB 2026_
+_Last updated on: Tue Jul 28 12:19:20 WIB 2026_
