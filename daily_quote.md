@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Do not take life too seriously. You will never get out of it alive."
+> "To avoid criticism, do nothing, say nothing, and be nothing."
 
 - **Elbert Hubbard**
 
-_Last updated on: Tue Jul 28 12:19:20 WIB 2026_
+_Last updated on: Wed Jul 29 12:26:47 WIB 2026_
