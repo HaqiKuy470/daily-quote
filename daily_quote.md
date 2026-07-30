@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "To avoid criticism, do nothing, say nothing, and be nothing."
+> "The man who removes a mountain begins by carrying away small stones."
 
-- **Elbert Hubbard**
+- **William Faulkner**
 
-_Last updated on: Wed Jul 29 12:26:47 WIB 2026_
+_Last updated on: Thu Jul 30 12:13:42 WIB 2026_
