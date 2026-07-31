@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "The man who removes a mountain begins by carrying away small stones."
+> "Worry is a waste of emotional reserve."
 
-- **William Faulkner**
+- **Ayn Rand**
 
-_Last updated on: Thu Jul 30 12:13:42 WIB 2026_
+_Last updated on: Fri Jul 31 12:40:19 WIB 2026_
