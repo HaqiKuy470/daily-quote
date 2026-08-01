@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Worry is a waste of emotional reserve."
+> "Always dream and shoot higher than you know you can do. Do not bother just to be better than your contemporaries or predecessors. Try to be better than yourself."
 
-- **Ayn Rand**
+- **William Faulkner**
 
-_Last updated on: Fri Jul 31 12:40:19 WIB 2026_
+_Last updated on: Sat Aug  1 12:31:51 WIB 2026_
