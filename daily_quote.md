@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Always dream and shoot higher than you know you can do. Do not bother just to be better than your contemporaries or predecessors. Try to be better than yourself."
+> "Difficult and meaningful will always bring more satisfaction than easy and meaningless."
 
-- **William Faulkner**
+- **Maxime Lagace**
 
-_Last updated on: Sat Aug  1 12:31:51 WIB 2026_
+_Last updated on: Sun Aug  2 12:32:31 WIB 2026_
