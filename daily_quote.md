@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Difficult and meaningful will always bring more satisfaction than easy and meaningless."
+> "Courage Is a Love Affair with the Unknown"
 
-- **Maxime Lagace**
+- **Osho**
 
-_Last updated on: Sun Aug  2 12:32:31 WIB 2026_
+_Last updated on: Mon Aug  3 12:48:22 WIB 2026_
