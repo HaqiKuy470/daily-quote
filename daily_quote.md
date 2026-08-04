@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Courage Is a Love Affair with the Unknown"
+> "Evil is whatever distracts."
 
-- **Osho**
+- **Franz Kafka**
 
-_Last updated on: Mon Aug  3 12:48:22 WIB 2026_
+_Last updated on: Tue Aug  4 12:19:25 WIB 2026_
