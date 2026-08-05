@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Evil is whatever distracts."
+> "Every blessing ignored becomes a curse."
 
-- **Franz Kafka**
+- **Paulo Coelho**
 
-_Last updated on: Tue Aug  4 12:19:25 WIB 2026_
+_Last updated on: Wed Aug  5 12:19:22 WIB 2026_
