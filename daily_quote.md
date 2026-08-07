@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Every time we liberate a woman, we liberate a man."
+> "To accomplish big things, I am convinced you must first dream big dreams."
 
-- **Margaret Mead**
+- **Conrad Hilton**
 
-_Last updated on: Thu Aug  6 12:21:22 WIB 2026_
+_Last updated on: Fri Aug  7 11:28:44 WIB 2026_
