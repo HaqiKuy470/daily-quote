@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "To accomplish big things, I am convinced you must first dream big dreams."
+> "Go confidently in the direction of your dreams. Live the life you've imagined."
 
-- **Conrad Hilton**
+- **Arnold Schwarzenegger**
 
-_Last updated on: Fri Aug  7 11:28:44 WIB 2026_
+_Last updated on: Sat Aug  8 10:37:34 WIB 2026_
