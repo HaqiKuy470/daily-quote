@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Go confidently in the direction of your dreams. Live the life you've imagined."
+> "Be kind whenever possible. It is always possible."
 
-- **Arnold Schwarzenegger**
+- **Dalai Lama**
 
-_Last updated on: Sat Aug  8 10:37:34 WIB 2026_
+_Last updated on: Sun Aug  9 10:47:26 WIB 2026_
