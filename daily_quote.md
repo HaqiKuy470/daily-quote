@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Be kind whenever possible. It is always possible."
+> "The wise accomplish all that they want without arousing the envy or scorn of others."
 
-- **Dalai Lama**
+- **Ming-Dao Deng**
 
-_Last updated on: Sun Aug  9 10:47:26 WIB 2026_
+_Last updated on: Mon Aug 10 11:00:48 WIB 2026_
