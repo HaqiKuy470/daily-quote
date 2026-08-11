@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "The wise accomplish all that they want without arousing the envy or scorn of others."
+> "We ordinary people must forge our own beauty."
 
-- **Ming-Dao Deng**
+- **Kenji Miyazawa**
 
-_Last updated on: Mon Aug 10 11:00:48 WIB 2026_
+_Last updated on: Tue Aug 11 10:48:55 WIB 2026_
