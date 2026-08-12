@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "We ordinary people must forge our own beauty."
+> "There's no scarcity of opportunity to make a living at what you love. There is only a scarcity of resolve to make it happen."
 
-- **Kenji Miyazawa**
+- **Wayne Dyer**
 
-_Last updated on: Tue Aug 11 10:48:55 WIB 2026_
+_Last updated on: Wed Aug 12 11:11:28 WIB 2026_
