@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "There's no scarcity of opportunity to make a living at what you love. There is only a scarcity of resolve to make it happen."
+> "People think about what they don't want and attract more of the same."
 
-- **Wayne Dyer**
+- **Unknown**
 
-_Last updated on: Wed Aug 12 11:11:28 WIB 2026_
+_Last updated on: Thu Aug 13 11:16:05 WIB 2026_
