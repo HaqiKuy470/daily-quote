@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "People think about what they don't want and attract more of the same."
+> "He who possesses most must be most afraid of loss."
 
-- **Unknown**
+- **Leonardo da Vinci**
 
-_Last updated on: Thu Aug 13 11:16:05 WIB 2026_
+_Last updated on: Fri Aug 14 11:12:00 WIB 2026_
