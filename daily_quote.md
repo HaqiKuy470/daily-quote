@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "He who possesses most must be most afraid of loss."
+> "Numbing the pain for a while will make it worse when you finally feel it."
 
-- **Leonardo da Vinci**
+- **Albus Dumbledore**
 
-_Last updated on: Fri Aug 14 11:12:00 WIB 2026_
+_Last updated on: Sat Aug 15 09:55:40 WIB 2026_
