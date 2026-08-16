@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Numbing the pain for a while will make it worse when you finally feel it."
+> "You came empty handed, and you will leave empty handed."
 
-- **Albus Dumbledore**
+- **Bhagavad Gita**
 
-_Last updated on: Sat Aug 15 09:55:40 WIB 2026_
+_Last updated on: Sun Aug 16 10:04:43 WIB 2026_
