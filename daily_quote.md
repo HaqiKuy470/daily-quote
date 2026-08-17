@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "You came empty handed, and you will leave empty handed."
+> "Don't let the noise of others' opinions drown out your own inner voice."
 
-- **Bhagavad Gita**
+- **Steve Jobs**
 
-_Last updated on: Sun Aug 16 10:04:43 WIB 2026_
+_Last updated on: Mon Aug 17 10:04:21 WIB 2026_
