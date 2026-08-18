@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Don't let the noise of others' opinions drown out your own inner voice."
+> "No one can hurt you without your consent."
 
-- **Steve Jobs**
+- **Eleanor Roosevelt**
 
-_Last updated on: Mon Aug 17 10:04:21 WIB 2026_
+_Last updated on: Tue Aug 18 09:59:44 WIB 2026_
