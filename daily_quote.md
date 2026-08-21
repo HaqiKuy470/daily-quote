@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Life can be wonderful if you're not afraid of it."
+> "Vision is the art of seeing things invisible."
 
-- **Charlie Chaplin**
+- **Jonathan Swift**
 
-_Last updated on: Thu Aug 20 10:01:32 WIB 2026_
+_Last updated on: Fri Aug 21 10:07:40 WIB 2026_
