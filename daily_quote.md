@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Vision is the art of seeing things invisible."
+> "Identify your problems, but give your power and energy to solutions."
 
-- **Jonathan Swift**
+- **Tony Robbins**
 
-_Last updated on: Fri Aug 21 10:07:40 WIB 2026_
+_Last updated on: Sat Aug 22 09:58:33 WIB 2026_
