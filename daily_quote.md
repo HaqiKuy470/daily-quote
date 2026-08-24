@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Strategy without tactics is the slowest route to victory. Tactics without strategy is the noise before defeat."
+> "Opportunities don't often come along. So, when they do, you have to grab them."
 
-- **Sun Tzu**
+- **Audrey Hepburn**
 
-_Last updated on: Sun Aug 23 10:07:25 WIB 2026_
+_Last updated on: Mon Aug 24 10:08:15 WIB 2026_
