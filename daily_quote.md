@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Opportunities don't often come along. So, when they do, you have to grab them."
+> "You will not do incredible things without an incredible dream."
 
-- **Audrey Hepburn**
+- **John Eliot**
 
-_Last updated on: Mon Aug 24 10:08:15 WIB 2026_
+_Last updated on: Tue Aug 25 10:03:20 WIB 2026_
