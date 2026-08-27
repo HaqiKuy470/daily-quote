@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "The ladder of success is best climbed by stepping on the rungs of opportunity."
+> "Whenever you find yourself on the side of the majority, it is time to reform."
 
-- **Ayn Rand**
+- **Mark Twain**
 
-_Last updated on: Wed Aug 26 10:10:19 WIB 2026_
+_Last updated on: Thu Aug 27 19:39:40 WIB 2026_
