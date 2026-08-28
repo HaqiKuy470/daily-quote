@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Whenever you find yourself on the side of the majority, it is time to reform."
+> "A poet should be so crafty with words that he is envied even for his pains."
 
-- **Mark Twain**
+- **Criss Jami**
 
-_Last updated on: Thu Aug 27 19:39:40 WIB 2026_
+_Last updated on: Fri Aug 28 21:12:41 WIB 2026_
