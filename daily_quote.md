@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "A poet should be so crafty with words that he is envied even for his pains."
+> "The giving of love is an education in itself."
 
-- **Criss Jami**
+- **Eleanor Roosevelt**
 
-_Last updated on: Fri Aug 28 21:12:41 WIB 2026_
+_Last updated on: Sat Aug 29 15:50:14 WIB 2026_
