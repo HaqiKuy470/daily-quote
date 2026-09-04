@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "He who has overcome his fears will truly be free."
+> "To be alive - is Power."
 
-- **Aristotle**
+- **Emily Dickinson**
 
-_Last updated on: Thu Sep  3 14:02:42 WIB 2026_
+_Last updated on: Fri Sep  4 14:06:56 WIB 2026_
