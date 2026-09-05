@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "To be alive - is Power."
+> "In order to be irreplaceable one must always be different."
 
-- **Emily Dickinson**
+- **Coco Chanel**
 
-_Last updated on: Fri Sep  4 14:06:56 WIB 2026_
+_Last updated on: Sat Sep  5 13:50:14 WIB 2026_
