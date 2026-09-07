@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "A Rolling Stone Gathers No Moss."
+> "The fact of the matter is that there will be nothing learned from any challenge in which we don't try our hardest."
 
-- **Publilius Syrus**
+- **Josh Waitzkin**
 
-_Last updated on: Sun Sep  6 14:00:33 WIB 2026_
+_Last updated on: Mon Sep  7 14:11:36 WIB 2026_
