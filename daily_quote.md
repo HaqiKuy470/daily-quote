@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "The positive thinker sees the invisible, feels the intangible, and achieves the impossible."
+> "Do what is right, not what is easy, nor what is popular."
 
-- **Winston Churchill**
+- **Roy T. Bennett**
 
-_Last updated on: Tue Sep  8 14:07:20 WIB 2026_
+_Last updated on: Wed Sep  9 14:14:30 WIB 2026_
