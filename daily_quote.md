@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Do what is right, not what is easy, nor what is popular."
+> "We know nothing of tomorrow, our business is to be good and happy today."
 
-- **Roy T. Bennett**
+- **Sydney Smith**
 
-_Last updated on: Wed Sep  9 14:14:30 WIB 2026_
+_Last updated on: Thu Sep 10 14:11:00 WIB 2026_
