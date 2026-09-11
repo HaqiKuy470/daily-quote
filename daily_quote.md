@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "We know nothing of tomorrow, our business is to be good and happy today."
+> "Take care of your body. It's the only place you have to live."
 
-- **Sydney Smith**
+- **Jim Rohn**
 
-_Last updated on: Thu Sep 10 14:11:00 WIB 2026_
+_Last updated on: Fri Sep 11 14:10:14 WIB 2026_
