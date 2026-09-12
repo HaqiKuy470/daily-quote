@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Take care of your body. It's the only place you have to live."
+> "Start each day with a positive thought and a grateful heart."
 
-- **Jim Rohn**
+- **Roy T. Bennett**
 
-_Last updated on: Fri Sep 11 14:10:14 WIB 2026_
+_Last updated on: Sat Sep 12 14:01:40 WIB 2026_
