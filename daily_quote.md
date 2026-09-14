@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "There is a cosmic law which says that every satisfaction must be paid for with a dissatisfaction."
+> "When things go wrong, don't go with them."
 
-- **G.I. Gurdjieff**
+- **Elvis Presley**
 
-_Last updated on: Sun Sep 13 14:21:02 WIB 2026_
+_Last updated on: Mon Sep 14 14:45:47 WIB 2026_
