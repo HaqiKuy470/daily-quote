@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Gratitude is the fairest blossom which springs from the soul."
+> "Yesterday is the past, tomorrow is the future, today is a gift - that's why it's called the present."
 
-- **Henry Ward Beecher**
+- **George Bernard Shaw**
 
-_Last updated on: Tue Sep 15 14:29:53 WIB 2026_
+_Last updated on: Wed Sep 16 14:29:00 WIB 2026_
