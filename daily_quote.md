@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Yesterday is the past, tomorrow is the future, today is a gift - that's why it's called the present."
+> "Life is a gift. Never forget to enjoy and bask in every moment you are in."
 
-- **George Bernard Shaw**
+- **Celestine Chua**
 
-_Last updated on: Wed Sep 16 14:29:00 WIB 2026_
+_Last updated on: Thu Sep 17 14:26:19 WIB 2026_
