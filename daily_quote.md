@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Life is a gift. Never forget to enjoy and bask in every moment you are in."
+> "Change happens when the pain of holding on becomes greater than the fear of letting go."
 
-- **Celestine Chua**
+- **Spencer Johnson**
 
-_Last updated on: Thu Sep 17 14:26:19 WIB 2026_
+_Last updated on: Fri Sep 18 14:15:10 WIB 2026_
