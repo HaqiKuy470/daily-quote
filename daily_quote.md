@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Change happens when the pain of holding on becomes greater than the fear of letting go."
+> "Once a decision was made, I didn't worry about it afterward."
 
-- **Spencer Johnson**
+- **Harry S. Truman**
 
-_Last updated on: Fri Sep 18 14:15:10 WIB 2026_
+_Last updated on: Sat Sep 19 14:12:16 WIB 2026_
