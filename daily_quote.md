@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Once a decision was made, I didn't worry about it afterward."
+> "Faith means believing the unbelievable."
 
-- **Harry S. Truman**
+- **Gilbert Chesterton**
 
-_Last updated on: Sat Sep 19 14:12:16 WIB 2026_
+_Last updated on: Sun Sep 20 14:37:18 WIB 2026_
