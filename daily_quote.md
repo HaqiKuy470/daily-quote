@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Faith means believing the unbelievable."
+> "Simplicity is the glory of expression."
 
-- **Gilbert Chesterton**
+- **Walt Whitman**
 
-_Last updated on: Sun Sep 20 14:37:18 WIB 2026_
+_Last updated on: Mon Sep 21 14:49:36 WIB 2026_
