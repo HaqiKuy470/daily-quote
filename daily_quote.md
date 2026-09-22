@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Simplicity is the glory of expression."
+> "It is not because things are difficult that we do not dare; it is because we do not dare that things are difficult."
 
-- **Walt Whitman**
+- **Seneca**
 
-_Last updated on: Mon Sep 21 14:49:36 WIB 2026_
+_Last updated on: Tue Sep 22 14:32:52 WIB 2026_
