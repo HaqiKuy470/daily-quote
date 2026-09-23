@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "It is not because things are difficult that we do not dare; it is because we do not dare that things are difficult."
+> "What the mind can conceive and believe, and the heart desire, you can achieve."
 
-- **Seneca**
+- **Norman Vincent Peale**
 
-_Last updated on: Tue Sep 22 14:32:52 WIB 2026_
+_Last updated on: Wed Sep 23 14:37:57 WIB 2026_
