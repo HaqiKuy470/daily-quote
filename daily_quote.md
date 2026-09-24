@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "What the mind can conceive and believe, and the heart desire, you can achieve."
+> "So long as we are being remembered, we remain alive."
 
-- **Norman Vincent Peale**
+- **Carlos Ruiz Zafon**
 
-_Last updated on: Wed Sep 23 14:37:57 WIB 2026_
+_Last updated on: Thu Sep 24 14:27:49 WIB 2026_
