@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "So long as we are being remembered, we remain alive."
+> "Desire is suffering."
 
-- **Carlos Ruiz Zafon**
+- **Naval Ravikant**
 
-_Last updated on: Thu Sep 24 14:27:49 WIB 2026_
+_Last updated on: Fri Sep 25 14:27:41 WIB 2026_
