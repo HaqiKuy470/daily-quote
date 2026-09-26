@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Desire is suffering."
+> "You must be willing to do what others won't do, to have what others won't have."
 
-- **Naval Ravikant**
+- **Les Brown**
 
-_Last updated on: Fri Sep 25 14:27:41 WIB 2026_
+_Last updated on: Sat Sep 26 14:22:16 WIB 2026_
