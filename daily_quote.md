@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "You must be willing to do what others won't do, to have what others won't have."
+> "From the errors of others, a wise man corrects his own."
 
-- **Les Brown**
+- **Publilius Syrus**
 
-_Last updated on: Sat Sep 26 14:22:16 WIB 2026_
+_Last updated on: Sun Sep 27 14:53:52 WIB 2026_
