@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "From the errors of others, a wise man corrects his own."
+> "Passion is energy. Feel the power that comes from focusing on what excites you."
 
-- **Publilius Syrus**
+- **Oprah Winfrey**
 
-_Last updated on: Sun Sep 27 14:53:52 WIB 2026_
+_Last updated on: Mon Sep 28 15:29:29 WIB 2026_
