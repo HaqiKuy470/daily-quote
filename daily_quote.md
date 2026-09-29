@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Passion is energy. Feel the power that comes from focusing on what excites you."
+> "Not how long, but how well you have lived is the main thing."
 
-- **Oprah Winfrey**
+- **Seneca**
 
-_Last updated on: Mon Sep 28 15:29:29 WIB 2026_
+_Last updated on: Tue Sep 29 15:12:28 WIB 2026_
