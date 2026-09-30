@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Not how long, but how well you have lived is the main thing."
+> "It is in the darkness that one finds the light."
 
-- **Seneca**
+- **Meister Eckhart**
 
-_Last updated on: Tue Sep 29 15:12:28 WIB 2026_
+_Last updated on: Wed Sep 30 15:14:30 WIB 2026_
