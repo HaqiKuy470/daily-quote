@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "It is in the darkness that one finds the light."
+> "Instead of worrying about what you cannot control, shift your energy to what you can create."
 
-- **Meister Eckhart**
+- **Roy T. Bennett**
 
-_Last updated on: Wed Sep 30 15:14:30 WIB 2026_
+_Last updated on: Thu Oct  1 15:37:37 WIB 2026_
