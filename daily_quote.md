@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Instead of worrying about what you cannot control, shift your energy to what you can create."
+> "When you are able to employ your will always for constructive purposes, you become the controller of your destiny."
 
-- **Roy T. Bennett**
+- **Paramahansa Yogananda**
 
-_Last updated on: Thu Oct  1 15:37:37 WIB 2026_
+_Last updated on: Fri Oct  2 15:15:05 WIB 2026_
