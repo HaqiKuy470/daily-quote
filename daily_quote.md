@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "When you are able to employ your will always for constructive purposes, you become the controller of your destiny."
+> "People think about what they don't want and attract more of the same."
 
-- **Paramahansa Yogananda**
+- **Unknown**
 
-_Last updated on: Fri Oct  2 15:15:05 WIB 2026_
+_Last updated on: Sat Oct  3 14:51:26 WIB 2026_
