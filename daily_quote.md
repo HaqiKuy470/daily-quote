@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "People think about what they don't want and attract more of the same."
+> "Tenderness and kindness are not signs of weakness and despair, but manifestations of strength and resolution."
 
-- **Unknown**
+- **Kahlil Gibran**
 
-_Last updated on: Sat Oct  3 14:51:26 WIB 2026_
+_Last updated on: Sun Oct  4 15:14:19 WIB 2026_
