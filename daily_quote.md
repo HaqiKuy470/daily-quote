@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Tenderness and kindness are not signs of weakness and despair, but manifestations of strength and resolution."
+> "You get paid in direct proportion to the difficulty of problems you solve."
 
-- **Kahlil Gibran**
+- **Elon Musk**
 
-_Last updated on: Sun Oct  4 15:14:19 WIB 2026_
+_Last updated on: Mon Oct  5 15:43:46 WIB 2026_
