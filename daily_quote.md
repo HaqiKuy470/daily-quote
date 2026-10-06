@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "You get paid in direct proportion to the difficulty of problems you solve."
+> "What the mind can conceive and believe, and the heart desire, you can achieve."
 
-- **Elon Musk**
+- **Norman Vincent Peale**
 
-_Last updated on: Mon Oct  5 15:43:46 WIB 2026_
+_Last updated on: Tue Oct  6 15:47:39 WIB 2026_
