@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "What the mind can conceive and believe, and the heart desire, you can achieve."
+> "Think of yourself as dead. you have lived your life. Now, take what's left, and live it properly."
 
-- **Norman Vincent Peale**
+- **Marcus Aurelius**
 
-_Last updated on: Tue Oct  6 15:47:39 WIB 2026_
+_Last updated on: Wed Oct  7 15:24:58 WIB 2026_
