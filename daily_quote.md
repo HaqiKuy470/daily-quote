@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Think of yourself as dead. you have lived your life. Now, take what's left, and live it properly."
+> "Fear of death is fear of the Unknown."
 
-- **Marcus Aurelius**
+- **Adi Da Samraj**
 
-_Last updated on: Wed Oct  7 15:24:58 WIB 2026_
+_Last updated on: Thu Oct  8 15:40:31 WIB 2026_
