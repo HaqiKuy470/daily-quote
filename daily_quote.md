@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Fear of death is fear of the Unknown."
+> "With self-discipline, almost anything is possible."
 
-- **Adi Da Samraj**
+- **Theodore Roosevelt**
 
-_Last updated on: Thu Oct  8 15:40:31 WIB 2026_
+_Last updated on: Fri Oct  9 15:45:40 WIB 2026_
