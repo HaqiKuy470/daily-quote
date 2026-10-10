@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "With self-discipline, almost anything is possible."
+> "The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails."
 
-- **Theodore Roosevelt**
+- **Colin R. Davis**
 
-_Last updated on: Fri Oct  9 15:45:40 WIB 2026_
+_Last updated on: Sat Oct 10 15:17:10 WIB 2026_
