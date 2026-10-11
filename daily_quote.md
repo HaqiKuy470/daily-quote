@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails."
+> "Truth is like the sun. You can shut it out for a time, but it ain't going away."
 
-- **Colin R. Davis**
+- **Elvis Presley**
 
-_Last updated on: Sat Oct 10 15:17:10 WIB 2026_
+_Last updated on: Sun Oct 11 15:34:40 WIB 2026_
