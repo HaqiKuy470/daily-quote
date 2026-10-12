@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Truth is like the sun. You can shut it out for a time, but it ain't going away."
+> "Your hardest times often lead to the greatest moments of your life. Keep going. Tough situations build strong people in the end."
 
-- **Elvis Presley**
+- **Roy T. Bennett**
 
-_Last updated on: Sun Oct 11 15:34:40 WIB 2026_
+_Last updated on: Mon Oct 12 15:55:06 WIB 2026_
