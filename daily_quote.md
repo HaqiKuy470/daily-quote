@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Your hardest times often lead to the greatest moments of your life. Keep going. Tough situations build strong people in the end."
+> "A vital part of the happiness formula is self-discipline. Whoever conquers himself knows deep happiness that fills the heart with joy."
 
-- **Roy T. Bennett**
+- **Norman Vincent Peale**
 
-_Last updated on: Mon Oct 12 15:55:06 WIB 2026_
+_Last updated on: Tue Oct 13 16:10:17 WIB 2026_
