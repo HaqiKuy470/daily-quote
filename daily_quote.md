@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "A vital part of the happiness formula is self-discipline. Whoever conquers himself knows deep happiness that fills the heart with joy."
+> "Believe in yourself. You are braver than you think, more talented than you know, and capable of more than you imagine."
 
-- **Norman Vincent Peale**
+- **Roy T. Bennett**
 
-_Last updated on: Tue Oct 13 16:10:17 WIB 2026_
+_Last updated on: Wed Oct 14 14:20:44 WIB 2026_
