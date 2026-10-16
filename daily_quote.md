@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "In the end, it's not the years in your life that count. It's the life in your years."
+> "Optimism is the one quality more associated with success and happiness than any other."
 
-- **Abraham Lincoln**
+- **Brian Tracy**
 
-_Last updated on: Thu Oct 15 14:11:55 WIB 2026_
+_Last updated on: Fri Oct 16 13:55:05 WIB 2026_
