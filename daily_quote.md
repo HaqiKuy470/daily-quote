@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Optimism is the one quality more associated with success and happiness than any other."
+> "A tiger doesn't lose sleep over the opinion of sheep."
 
-- **Brian Tracy**
+- **Shahir Zag**
 
-_Last updated on: Fri Oct 16 13:55:05 WIB 2026_
+_Last updated on: Sat Oct 17 13:46:37 WIB 2026_
