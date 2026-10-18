@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "A tiger doesn't lose sleep over the opinion of sheep."
+> "You are your best thing."
 
-- **Shahir Zag**
+- **Toni Morrison**
 
-_Last updated on: Sat Oct 17 13:46:37 WIB 2026_
+_Last updated on: Sun Oct 18 14:06:45 WIB 2026_
