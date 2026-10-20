@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Every moment you get is a gift. Spend it on things that matter. Don't spend it by dwelling on unhappy things."
+> "What would you do if you weren't afraid?"
 
-- **Celestine Chua**
+- **Spencer Johnson**
 
-_Last updated on: Mon Oct 19 14:32:27 WIB 2026_
+_Last updated on: Tue Oct 20 14:20:50 WIB 2026_
