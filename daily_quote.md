@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "What would you do if you weren't afraid?"
+> "Use your smile to change the world but don't let the world change your smile."
 
-- **Spencer Johnson**
+- **Unknown**
 
-_Last updated on: Tue Oct 20 14:20:50 WIB 2026_
+_Last updated on: Wed Oct 21 14:21:07 WIB 2026_
