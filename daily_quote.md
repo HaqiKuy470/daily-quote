@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Use your smile to change the world but don't let the world change your smile."
+> "People seldom do what they believe in. They do what is convenient, then repent."
 
-- **Unknown**
+- **Bob Dylan**
 
-_Last updated on: Wed Oct 21 14:21:07 WIB 2026_
+_Last updated on: Thu Oct 22 14:21:49 WIB 2026_
