@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "The power to make and break habits and learning how to do that is really important."
+> "You are never too old to become younger."
 
-- **Naval Ravikant**
+- **Mae West**
 
-_Last updated on: Fri Oct 23 14:15:10 WIB 2026_
+_Last updated on: Sat Oct 24 14:03:39 WIB 2026_
