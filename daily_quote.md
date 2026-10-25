@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "You are never too old to become younger."
+> "If you want to be successful, find someone who has achieved the results you want and copy what they do and you'll achieve the same results."
 
-- **Mae West**
+- **Tony Robbins**
 
-_Last updated on: Sat Oct 24 14:03:39 WIB 2026_
+_Last updated on: Sun Oct 25 14:27:36 WIB 2026_
