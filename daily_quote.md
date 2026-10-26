@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "If you want to be successful, find someone who has achieved the results you want and copy what they do and you'll achieve the same results."
+> "A man who acquires the ability to take full possession of his own mind may take possession of anything else to which he is justly entitled."
 
-- **Tony Robbins**
+- **Andrew Carnegie**
 
-_Last updated on: Sun Oct 25 14:27:36 WIB 2026_
+_Last updated on: Mon Oct 26 14:37:16 WIB 2026_
