@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Failure comes from ego, greed, envy, fear, and imitation."
+> "Never take your position for granted and never let any favors you receive go to your head."
 
-- **Warren Buffett**
+- **Robert Greene**
 
-_Last updated on: Tue Oct 27 14:35:01 WIB 2026_
+_Last updated on: Wed Oct 28 15:07:36 WIB 2026_
