@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Never take your position for granted and never let any favors you receive go to your head."
+> "Better to have, and not need, than to need, and not have."
 
-- **Robert Greene**
+- **Franz Kafka**
 
-_Last updated on: Wed Oct 28 15:07:36 WIB 2026_
+_Last updated on: Thu Oct 29 15:15:45 WIB 2026_
