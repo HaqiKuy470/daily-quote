@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Better to have, and not need, than to need, and not have."
+> "No experience is a cause of success or failure. We do not suffer from the shock of our experiences, so-called trauma - but we make out of them just what suits our purposes."
 
-- **Franz Kafka**
+- **Alfred Adler**
 
-_Last updated on: Thu Oct 29 15:15:45 WIB 2026_
+_Last updated on: Fri Oct 30 15:23:10 WIB 2026_
