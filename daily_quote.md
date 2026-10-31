@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "No experience is a cause of success or failure. We do not suffer from the shock of our experiences, so-called trauma - but we make out of them just what suits our purposes."
+> "Keep your eyes on the goal, and just keep taking the next step towards completing it."
 
-- **Alfred Adler**
+- **John Carmack**
 
-_Last updated on: Fri Oct 30 15:23:10 WIB 2026_
+_Last updated on: Sat Oct 31 15:13:28 WIB 2026_
