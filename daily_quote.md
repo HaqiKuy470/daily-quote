@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Keep your eyes on the goal, and just keep taking the next step towards completing it."
+> "No great discovery was ever made without a bold guess."
 
-- **John Carmack**
+- **Isaac Newton**
 
-_Last updated on: Sat Oct 31 15:13:28 WIB 2026_
+_Last updated on: Sun Nov  1 15:57:31 WIB 2026_
