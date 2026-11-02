@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "No great discovery was ever made without a bold guess."
+> "Wherever there is danger, there lurks opportunity; wherever there is opportunity, there lurks danger. The two are inseparable."
 
-- **Isaac Newton**
+- **Earl Nightingale**
 
-_Last updated on: Sun Nov  1 15:57:31 WIB 2026_
+_Last updated on: Mon Nov  2 16:08:33 WIB 2026_
