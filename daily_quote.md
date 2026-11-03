@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Wherever there is danger, there lurks opportunity; wherever there is opportunity, there lurks danger. The two are inseparable."
+> "It's not what you say out of your mouth that determines your life, it's what you whisper to yourself that has the most power!"
 
-- **Earl Nightingale**
+- **Robert Kiyosaki**
 
-_Last updated on: Mon Nov  2 16:08:33 WIB 2026_
+_Last updated on: Tue Nov  3 16:15:32 WIB 2026_
