@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "It's not what you say out of your mouth that determines your life, it's what you whisper to yourself that has the most power!"
+> "Debt is the slavery of the free."
 
-- **Robert Kiyosaki**
+- **Publilius Syrus**
 
-_Last updated on: Tue Nov  3 16:15:32 WIB 2026_
+_Last updated on: Wed Nov  4 15:51:01 WIB 2026_
