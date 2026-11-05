@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Debt is the slavery of the free."
+> "Keep your eyes on the stars, but remember to keep your feet on the ground."
 
-- **Publilius Syrus**
+- **Theodore Roosevelt**
 
-_Last updated on: Wed Nov  4 15:51:01 WIB 2026_
+_Last updated on: Thu Nov  5 16:14:19 WIB 2026_
