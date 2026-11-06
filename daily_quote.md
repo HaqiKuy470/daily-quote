@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Keep your eyes on the stars, but remember to keep your feet on the ground."
+> "If you do not change direction, you may end up where you are heading."
 
-- **Theodore Roosevelt**
+- **Lao Tzu**
 
-_Last updated on: Thu Nov  5 16:14:19 WIB 2026_
+_Last updated on: Fri Nov  6 16:06:31 WIB 2026_
