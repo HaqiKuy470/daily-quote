@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "If you do not change direction, you may end up where you are heading."
+> "Conquer the devils with a little thing called love."
 
-- **Lao Tzu**
+- **Bob Marley**
 
-_Last updated on: Fri Nov  6 16:06:31 WIB 2026_
+_Last updated on: Sat Nov  7 15:34:16 WIB 2026_
