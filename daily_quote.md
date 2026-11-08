@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Conquer the devils with a little thing called love."
+> "Great ones are willing to get burned time and again as they sharpen their swords in the fire."
 
-- **Bob Marley**
+- **Josh Waitzkin**
 
-_Last updated on: Sat Nov  7 15:34:16 WIB 2026_
+_Last updated on: Sun Nov  8 15:47:11 WIB 2026_
