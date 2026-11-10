@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "I know not all that may be coming, but be it what it will, I'll go to it laughing."
+> "I would rather be hated for who I am than loved for who I'm not."
 
-- **Herman Melville**
+- **Wayne Dyer**
 
-_Last updated on: Mon Nov  9 16:29:04 WIB 2026_
+_Last updated on: Tue Nov 10 16:30:52 WIB 2026_
