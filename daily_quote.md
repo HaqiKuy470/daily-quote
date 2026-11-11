@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "I would rather be hated for who I am than loved for who I'm not."
+> "I was angered, for I had no shoes. Then I met a man who had no feet."
 
-- **Wayne Dyer**
+- **Chinese Proverb**
 
-_Last updated on: Tue Nov 10 16:30:52 WIB 2026_
+_Last updated on: Wed Nov 11 16:05:12 WIB 2026_
