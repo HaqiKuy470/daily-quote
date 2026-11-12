@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "I was angered, for I had no shoes. Then I met a man who had no feet."
+> "Showing off is the fool's idea of glory."
 
-- **Chinese Proverb**
+- **Bruce Lee**
 
-_Last updated on: Wed Nov 11 16:05:12 WIB 2026_
+_Last updated on: Thu Nov 12 16:33:02 WIB 2026_
