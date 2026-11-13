@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Showing off is the fool's idea of glory."
+> "All know the way; few actually walk it."
 
-- **Bruce Lee**
+- **Bodhidharma**
 
-_Last updated on: Thu Nov 12 16:33:02 WIB 2026_
+_Last updated on: Fri Nov 13 16:19:16 WIB 2026_
