@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "All know the way; few actually walk it."
+> "Be courteous to all, but intimate with few, and let those few be well tried before you give them your confidence."
 
-- **Bodhidharma**
+- **George Washington**
 
-_Last updated on: Fri Nov 13 16:19:16 WIB 2026_
+_Last updated on: Sat Nov 14 15:47:40 WIB 2026_
