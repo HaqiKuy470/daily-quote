@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Be courteous to all, but intimate with few, and let those few be well tried before you give them your confidence."
+> "The tragedy of life doesn't lie in not reaching your goal. The tragedy lies in having no goals to reach."
 
-- **George Washington**
+- **Benjamin Mays**
 
-_Last updated on: Sat Nov 14 15:47:40 WIB 2026_
+_Last updated on: Sun Nov 15 16:00:54 WIB 2026_
