@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "The tragedy of life doesn't lie in not reaching your goal. The tragedy lies in having no goals to reach."
+> "The harder you work for something, the greater you'll feel when you achieve it."
 
-- **Benjamin Mays**
+- **Colin R. Davis**
 
-_Last updated on: Sun Nov 15 16:00:54 WIB 2026_
+_Last updated on: Mon Nov 16 16:18:16 WIB 2026_
