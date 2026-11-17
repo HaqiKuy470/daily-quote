@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "The harder you work for something, the greater you'll feel when you achieve it."
+> "In peace, sons bury their fathers. In war, fathers bury their sons."
 
-- **Colin R. Davis**
+- **Herodotus**
 
-_Last updated on: Mon Nov 16 16:18:16 WIB 2026_
+_Last updated on: Tue Nov 17 17:26:16 WIB 2026_
