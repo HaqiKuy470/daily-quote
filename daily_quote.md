@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "In peace, sons bury their fathers. In war, fathers bury their sons."
+> "There is only the one reality, neither to be realized nor attained."
 
-- **Herodotus**
+- **Huang Po**
 
-_Last updated on: Tue Nov 17 17:26:16 WIB 2026_
+_Last updated on: Wed Nov 18 16:56:23 WIB 2026_
