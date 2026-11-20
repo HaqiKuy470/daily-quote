@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "The more you feed your mind with positive thoughts, the more you can attract great things into your life."
+> "Life is not just the passing of time. Life is the collection of experiences and their intensity."
 
-- **Roy T. Bennett**
+- **Jim Rohn**
 
-_Last updated on: Thu Nov 19 17:03:24 WIB 2026_
+_Last updated on: Fri Nov 20 16:52:02 WIB 2026_
