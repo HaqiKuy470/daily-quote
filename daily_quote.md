@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Life is not just the passing of time. Life is the collection of experiences and their intensity."
+> "Never say never, because limits, like fears, are often just an illusion."
 
-- **Jim Rohn**
+- **Michael Jordan**
 
-_Last updated on: Fri Nov 20 16:52:02 WIB 2026_
+_Last updated on: Sat Nov 21 16:27:57 WIB 2026_
