@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Never say never, because limits, like fears, are often just an illusion."
+> "It is in changing that we find purpose."
 
-- **Michael Jordan**
+- **Heraclitus**
 
-_Last updated on: Sat Nov 21 16:27:57 WIB 2026_
+_Last updated on: Sun Nov 22 16:33:38 WIB 2026_
