@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "It is in changing that we find purpose."
+> "What's right is what's left if you do everything else wrong."
 
-- **Heraclitus**
+- **Robin Williams**
 
-_Last updated on: Sun Nov 22 16:33:38 WIB 2026_
+_Last updated on: Mon Nov 23 17:31:16 WIB 2026_
