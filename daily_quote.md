@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "What's right is what's left if you do everything else wrong."
+> "If you want to keep your memories, you first have to live them."
 
-- **Robin Williams**
+- **Bob Dylan**
 
-_Last updated on: Mon Nov 23 17:31:16 WIB 2026_
+_Last updated on: Tue Nov 24 19:14:33 WIB 2026_
