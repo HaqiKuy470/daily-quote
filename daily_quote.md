@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "If you want to keep your memories, you first have to live them."
+> "The truth is simple. If it was complicated, everyone would understand it."
 
-- **Bob Dylan**
+- **Walt Whitman**
 
-_Last updated on: Tue Nov 24 19:14:33 WIB 2026_
+_Last updated on: Wed Nov 25 18:01:11 WIB 2026_
