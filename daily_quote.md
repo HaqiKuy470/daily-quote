@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "The truth is simple. If it was complicated, everyone would understand it."
+> "Creativity is the greatest rebellion in existence."
 
-- **Walt Whitman**
+- **Osho**
 
-_Last updated on: Wed Nov 25 18:01:11 WIB 2026_
+_Last updated on: Thu Nov 26 17:39:32 WIB 2026_
