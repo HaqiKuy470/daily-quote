@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Creativity is the greatest rebellion in existence."
+> "Anger, ego, jealousy are the biggest diseases,Keep yourself aloof from these three diseases."
 
-- **Osho**
+- **Sathya Sai Baba**
 
-_Last updated on: Thu Nov 26 17:39:32 WIB 2026_
+_Last updated on: Fri Nov 27 17:41:29 WIB 2026_
