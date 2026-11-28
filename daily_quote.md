@@ -1,6 +1,6 @@
 ### Quote of the Day 🌟
-> "Anger, ego, jealousy are the biggest diseases,Keep yourself aloof from these three diseases."
+> "A zen master's life is one continuous mistake."
 
-- **Sathya Sai Baba**
+- **Dogen**
 
-_Last updated on: Fri Nov 27 17:41:29 WIB 2026_
+_Last updated on: Sat Nov 28 17:00:51 WIB 2026_
